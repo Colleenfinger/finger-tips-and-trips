@@ -1,1 +1,1 @@
-# finger-tips-and-trips
+# finger-trips-and-tips
